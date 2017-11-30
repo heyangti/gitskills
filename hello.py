@@ -8,6 +8,7 @@ this is my git commit:
 this is my another git clone;
 
 this is mydev commit;
+another dev commit;
 
 dev commi;
 
