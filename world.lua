@@ -4,3 +4,4 @@ this will be test the diff order.
 
 validate merge commit;
 add another line.
+123456789;
