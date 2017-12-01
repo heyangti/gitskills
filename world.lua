@@ -3,3 +3,4 @@ that is validate diff.
 this will be test the diff order.
 
 validate merge commit;
+add another line.
