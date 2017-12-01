@@ -1,5 +1,3 @@
 this is a lua file.
-
 that is validate diff.
 this will be test the diff order.
->>>>>>> origin/dev
