@@ -21,4 +21,4 @@ bbbbbbbbbb;
 呵呵哒
 
 fuck your mousei
-fuck ni da ye
+fuck ni da jiu
