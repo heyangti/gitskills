@@ -20,4 +20,4 @@ bbbbbbbbbb;
 哭过了泪干了心也不悔
 呵呵哒
 
-fuck you
+fuck your mousei
