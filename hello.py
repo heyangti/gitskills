@@ -23,4 +23,4 @@ bbbbbbbbbb;
 fuck your mousei
 fuck ni da shu
 fuck ni da ma
-fuck ni da bai
+fuck ni quan jia
