@@ -24,4 +24,4 @@ fuck your mousei
 fuck ni da shu
 fuck ni da ma
 fuck ni yi jia
-fuck ni quan jia
+fuck ni jia meizi
