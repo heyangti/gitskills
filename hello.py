@@ -26,6 +26,6 @@ fuck ni da ma
 fuck ni yi jia
 fuck ni jia meizi
 fuck git de  ssdfsadf
-fuck git de pull4567898&31112
+fuck git de 6pull4567898&31112
 fuck not rebase
 fuck git de  ssdsfdafdf
