@@ -28,3 +28,4 @@ fuck ni jia meizi
 fuck git de  ssdfsadf
 fuck git de pull
 fuck not rebase
+fuck git de  ssdsfdafdf
