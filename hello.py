@@ -6,12 +6,29 @@ dev branch add agian;
 
 this is my git commit:
 this is my another git clone;
+add line;
+sdflsjfksjdlf
+123456789;
 
-this is mydev commit;
-another dev commit;
+a123456789;
+ccccccccc;
+bbbbbbbbbb;
+>>>>>>>>>>>>>>>>>>>>>>>>>>>
+你是我的眼带我领略四季的变换
+因为你是我的眼，让我看见这世界就在我眼前
+看我流泪你头也不回
+哭过了泪干了心也不悔
+呵呵哒
 
-dev commi;
-
-test:
-
-
+fuck your mousei
+fuck ni da shu
+fuck ni da ma
+fuck ni yi jia
+fuck ni jia meizi
+fuck git de  ssdfsadf
+fuck git de 6pull4567898&311124(
+fuck not rebase
+fuck git de  ssdsfdafdf
+2222222222
+3333333333
+4444444444
